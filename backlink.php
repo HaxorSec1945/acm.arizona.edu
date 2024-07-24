@@ -5,4 +5,5 @@
 <a href="https://kejari-kabupatenbandung.kejaksaan.go.id/sthai/">https://kejari-kabupatenbandung.kejaksaan.go.id/sthai/</a>
 <a href="https://journals.stikim.ac.id/">https://journals.stikim.ac.id/</a>
 <a href="https://kejari-kabupatenbandung.kejaksaan.go.id/top/">https://kejari-kabupatenbandung.kejaksaan.go.id/top/</a>
+<a href="https://kaskus.co.id/">https://kaskus.co.id/</a>
 </div>
