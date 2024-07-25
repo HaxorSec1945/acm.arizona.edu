@@ -1,4 +1,9 @@
 <div style="display:none">
+<a href="https://bsdm.itenas.ac.id/styles/stoto/">https://bsdm.itenas.ac.id/styles/stoto/</a>
+<a href="https://bsdm.itenas.ac.id/styles/hk/">https://bsdm.itenas.ac.id/styles/hk/</a>
+<a href="https://bsdm.itenas.ac.id/styles/ee2d/">https://bsdm.itenas.ac.id/styles/ee2d/</a>
+<a href="https://bsdm.itenas.ac.id/styles/taiwan/">https://bsdm.itenas.ac.id/styles/taiwan/</a>
+<a href="https://bsdm.itenas.ac.id/styles/smacau/">https://bsdm.itenas.ac.id/styles/smacau/</a>
 <a href="https://s2pbi.fbsb.uny.ac.id/sule/index.html">https://s2pbi.fbsb.uny.ac.id/sule/index.html</a>
 <a href="https://kejari-kabupatenbandung.kejaksaan.go.id/tsuper/">https://kejari-kabupatenbandung.kejaksaan.go.id/tsuper/</a>
 <a href="http://teknois.unbin.ac.id/blog/sbopk/">http://teknois.unbin.ac.id/blog/sbopk/</a>
