@@ -1,4 +1,11 @@
 <div style="display:none">
+<a href="https://ejournal.iainkendari.ac.id/styles/stoto/">https://ejournal.iainkendari.ac.id/styles/stoto/</a>
+<a href="https://ejournal.iainkendari.ac.id/styles/jbol/">https://ejournal.iainkendari.ac.id/styles/jbol/</a>
+<a href="https://ejournal.iainkendari.ac.id/styles/bm/">https://ejournal.iainkendari.ac.id/styles/bm/</a>
+<a href="https://ejournal.iainkendari.ac.id/styles/phk/">https://ejournal.iainkendari.ac.id/styles/phk/</a>
+<a href="https://bsdm.itenas.ac.id/styles/bola/">https://bsdm.itenas.ac.id/styles/bola/</a>
+<a href="https://ppdb.labura.go.id/styles/jb/">https://ppdb.labura.go.id/styles/jb/</a>
+<a href="https://umkm.labura.go.id/assets/sgacor/">https://umkm.labura.go.id/assets/sgacor/</a>
 <a href="https://bsdm.itenas.ac.id/styles/stoto/">https://bsdm.itenas.ac.id/styles/stoto/</a>
 <a href="https://bsdm.itenas.ac.id/styles/hk/">https://bsdm.itenas.ac.id/styles/hk/</a>
 <a href="https://bsdm.itenas.ac.id/styles/ee2d/">https://bsdm.itenas.ac.id/styles/ee2d/</a>
