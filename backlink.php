@@ -19,4 +19,5 @@
 <a href="https://kejari-kabupatenbandung.kejaksaan.go.id/top/">https://kejari-kabupatenbandung.kejaksaan.go.id/top/</a>
 <a href="https://s3mp.fipp.uny.ac.id/ahok/index.html">https://s3mp.fipp.uny.ac.id/ahok/index.html</a>
 <a href="https://plb.fipp.uny.ac.id/keras/index.html">https://plb.fipp.uny.ac.id/keras/index.html</a>
+<a href="https://ejurnal.dpr.go.id/sgacor/">https://ejurnal.dpr.go.id/sgacor/</a>
 </div>
