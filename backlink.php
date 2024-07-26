@@ -4,6 +4,7 @@
 <a href="https://sbopoker66.com/">https://sbopoker66.com/</a>
 <a href="https://ijws.ub.ac.id/pages/ts/">https://ijws.ub.ac.id/pages/ts/</a>
 <a href="https://ijws.ub.ac.id/pages/sbpk/">https://ijws.ub.ac.id/pages/sbpk/</a>
+<a href="https://ijws.ub.ac.id/pages/kl/">https://ijws.ub.ac.id/pages/kl/</a>
 <a href="https://ejournal.uinsalatiga.ac.id/public/journals/situs-toto/">https://ejournal.uinsalatiga.ac.id/public/journals/situs-toto/</a>
 <a href="https://komnasham.go.id/blog/tsuper/">https://komnasham.go.id/blog/tsuper/</a>
 <a href="https://lppd.pontianak.go.id/blog/tsuper/">https://lppd.pontianak.go.id/blog/tsuper/</a>
