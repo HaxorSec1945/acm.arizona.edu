@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://kmob.jabarprov.go.id/style/gccr/">https://kmob.jabarprov.go.id/style/gccr/</a>
+<a href="https://d4tatabusana.fv.uny.ac.id/tk/">https://d4tatabusana.fv.uny.ac.id/tk/</a>
 <a href="https://drpm.uny.ac.id/poipet/index.html">https://drpm.uny.ac.id/poipet/index.html</a>
 <a href="https://dipro.isi-ska.ac.id/styles/psang/">https://dipro.isi-ska.ac.id/styles/psang/</a>
 <a href="https://totosuper71.com/">https://totosuper71.com/</a>
