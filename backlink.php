@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://ternaktropika.ub.ac.id/vendor/gcr/">https://ternaktropika.ub.ac.id/vendor/gcr/</a>
+<a href="https://igracias.ittelkom-pwt.ac.id/style/sgcr/">https://igracias.ittelkom-pwt.ac.id/style/sgcr/</a>
 <a href="https://kmob.jabarprov.go.id/style/gccr/">https://kmob.jabarprov.go.id/style/gccr/</a>
 <a href="https://d4tatabusana.fv.uny.ac.id/tk/">https://d4tatabusana.fv.uny.ac.id/tk/</a>
 <a href="https://drpm.uny.ac.id/poipet/index.html">https://drpm.uny.ac.id/poipet/index.html</a>
