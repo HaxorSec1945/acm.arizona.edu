@@ -4,6 +4,7 @@
 <a href="https://drpm.uny.ac.id/poipet/index.html">https://drpm.uny.ac.id/poipet/index.html</a>
 <a href="https://dipro.isi-ska.ac.id/styles/psang/">https://dipro.isi-ska.ac.id/styles/psang/</a>
 <a href="https://totosuper71.com/">https://totosuper71.com/</a>
+<a href="https://inspirasidikti.kemdikbud.go.id/content/sgacor/">https://inspirasidikti.kemdikbud.go.id/content/sgacor/</a>
 <a href="https://totokl33.com/">https://totokl33.com/</a>
 <a href="https://sbopoker66.com/">https://sbopoker66.com/</a>
 <a href="https://ijws.ub.ac.id/pages/ts/">https://ijws.ub.ac.id/pages/ts/</a>
