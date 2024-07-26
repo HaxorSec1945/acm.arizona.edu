@@ -8,6 +8,7 @@
 <a href="https://dasti.kejaksaan.go.id/blog/ts/">https://dasti.kejaksaan.go.id/blog/ts/</a>
 <a href="https://dasti.kejaksaan.go.id/blog/sbpk/">https://dasti.kejaksaan.go.id/blog/sbpk/</a>
 <a href="https://dasti.kejaksaan.go.id/blog/kl/">https://dasti.kejaksaan.go.id/blog/kl/</a>
+<a href="https://kejari-kabupatenbandung.kejaksaan.go.id/toto/">https://kejari-kabupatenbandung.kejaksaan.go.id/toto/</a>
 <a href="https://ejournal.uinsalatiga.ac.id/public/journals/situs-toto/">https://ejournal.uinsalatiga.ac.id/public/journals/situs-toto/</a>
 <a href="https://komnasham.go.id/blog/tsuper/">https://komnasham.go.id/blog/tsuper/</a>
 <a href="https://lppd.pontianak.go.id/blog/tsuper/">https://lppd.pontianak.go.id/blog/tsuper/</a>
