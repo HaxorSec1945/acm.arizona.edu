@@ -1,4 +1,7 @@
 <div style="display:none">
+<a href="https://totosuper71.com/">https://totosuper71.com/</a>
+<a href="https://totokl33.com/">https://totokl33.com/</a>
+<a href="https://sbopoker66.com/">https://sbopoker66.com/</a>
 <a href="https://ejournal.iainkendari.ac.id/styles/stoto/">https://ejournal.iainkendari.ac.id/styles/stoto/</a>
 <a href="https://ejournal.iainkendari.ac.id/styles/jbol/">https://ejournal.iainkendari.ac.id/styles/jbol/</a>
 <a href="https://ejournal.iainkendari.ac.id/styles/bm/">https://ejournal.iainkendari.ac.id/styles/bm/</a>
