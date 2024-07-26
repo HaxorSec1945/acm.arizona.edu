@@ -23,4 +23,11 @@
 <a href="https://s3mp.fipp.uny.ac.id/ahok/index.html">https://s3mp.fipp.uny.ac.id/ahok/index.html</a>
 <a href="https://plb.fipp.uny.ac.id/keras/index.html">https://plb.fipp.uny.ac.id/keras/index.html</a>
 <a href="https://ejurnal.dpr.go.id/sgacor/">https://ejurnal.dpr.go.id/sgacor/</a>
+<a href="https://www.htn.staimaswonogiri.ac.id/kl/">https://www.htn.staimaswonogiri.ac.id/kl/</a>
+<a href="https://www.htn.staimaswonogiri.ac.id/obc/">https://www.htn.staimaswonogiri.ac.id/obc/</a>
+<a href="https://www.htn.staimaswonogiri.ac.id/ts/">https://www.htn.staimaswonogiri.ac.id/ts/</a>
+<a href="https://www.htn.staimaswonogiri.ac.id/pisang/">https://www.htn.staimaswonogiri.ac.id/pisang/</a>
+<a href="https://www.htn.staimaswonogiri.ac.id/pisto/">https://www.htn.staimaswonogiri.ac.id/pisto/</a>
+<a href="https://www.htn.staimaswonogiri.ac.id/top/">https://www.htn.staimaswonogiri.ac.id/top/</a>
+<a href="https://www.htn.staimaswonogiri.ac.id/4d/">https://www.htn.staimaswonogiri.ac.id/4d/</a>
 </div>
