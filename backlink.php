@@ -1,4 +1,7 @@
 <div style="display:none">
+<a href="https://fh.hangtuah.ac.id/pimpinan/">https://fh.hangtuah.ac.id/pimpinan/</a>
+<a href="http://sim-epk.sari-mutiara.ac.id/styke/scr/">http://sim-epk.sari-mutiara.ac.id/styke/scr/</a>
+<a href="https://lc.stainidaeladabi.ac.id/style/scr/">https://lc.stainidaeladabi.ac.id/style/scr/</a>
 <a href="https://publikasipaw.kpu.go.id/vendor/sgcr/">https://publikasipaw.kpu.go.id/vendor/sgcr/</a>
 <a href="http://data.bandung.go.id/lib/pssg/">http://data.bandung.go.id/lib/pssg/</a>
 <a href="http://ski.unim.ac.id/style/psg/">http://ski.unim.ac.id/style/psg/</a>
