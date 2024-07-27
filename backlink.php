@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://publikasipaw.kpu.go.id/vendor/sgcr/">https://publikasipaw.kpu.go.id/vendor/sgcr/</a>
 <a href="http://data.bandung.go.id/lib/pssg/">http://data.bandung.go.id/lib/pssg/</a>
 <a href="http://ski.unim.ac.id/style/psg/">http://ski.unim.ac.id/style/psg/</a>
 <a href="https://ternaktropika.ub.ac.id/vendor/gcr/">https://ternaktropika.ub.ac.id/vendor/gcr/</a>
