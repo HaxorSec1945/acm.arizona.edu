@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://sumberdaya.usk.ac.id/style/sgcr/">https://sumberdaya.usk.ac.id/style/sgcr/</a>  
 <a href="http://eluntasold.untag-smd.ac.id/style/sthai/">http://eluntasold.untag-smd.ac.id/style/sthai/</a>
 <a href="https://e-kkn.unila.ac.id/vendor/psg/">https://e-kkn.unila.ac.id/vendor/psg/</a>
 <a href="https://siapdes.dpmd.kalteng.go.id/dis/rtp/">https://siapdes.dpmd.kalteng.go.id/dis/rtp/</a>
