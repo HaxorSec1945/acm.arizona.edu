@@ -2,6 +2,7 @@
 <a href="https://totosuper65.com/">https://totosuper65.com/</a>
 <a href="https://totokl33.com/">https://totokl33.com/</a>
 <a href="https://sbopoker66.com/">https://sbopoker66.com/</a>
+<a href="http://infokl4d.com/">http://infokl4d.com/</a>
 <a href="https://publikasipaw.kpu.go.id/vendor/psg/">https://publikasipaw.kpu.go.id/vendor/psg/</a>
 <a href="https://journal.sragenkab.go.id/public/">https://journal.sragenkab.go.id/public/</a>  
 <a href="https://sumberdaya.usk.ac.id/style/sgcr/">https://sumberdaya.usk.ac.id/style/sgcr/</a>  
