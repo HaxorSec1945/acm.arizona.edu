@@ -68,4 +68,5 @@
 <a href="https://www.htn.staimaswonogiri.ac.id/pisto/">https://www.htn.staimaswonogiri.ac.id/pisto/</a>
 <a href="https://www.htn.staimaswonogiri.ac.id/top/">https://www.htn.staimaswonogiri.ac.id/top/</a>
 <a href="https://www.htn.staimaswonogiri.ac.id/4d/">https://www.htn.staimaswonogiri.ac.id/4d/</a>
+<a href="https://agroteknologi.uma.ac.id/pisang/">https://agroteknologi.uma.ac.id/pisang/</a>
 </div>
