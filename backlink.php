@@ -70,4 +70,11 @@
 <a href="https://www.htn.staimaswonogiri.ac.id/top/">https://www.htn.staimaswonogiri.ac.id/top/</a>
 <a href="https://www.htn.staimaswonogiri.ac.id/4d/">https://www.htn.staimaswonogiri.ac.id/4d/</a>
 <a href="https://agroteknologi.uma.ac.id/pisang/">https://agroteknologi.uma.ac.id/pisang/</a>
+<a href="https://jelajah.fftv.ikj.ac.id/files/premium/pisangbet/">https://jelajah.fftv.ikj.ac.id/files/premium/pisangbet/</a>
+<a href="https://jelajah.fftv.ikj.ac.id/files/premium/obcbet/">https://jelajah.fftv.ikj.ac.id/files/premium/obcbet/</a>
+<a href="https://jelajah.fftv.ikj.ac.id/files/premium/obctop/">https://jelajah.fftv.ikj.ac.id/files/premium/obctop/</a>
+<a href="https://jelajah.fftv.ikj.ac.id/files/premium/totosuper/">https://jelajah.fftv.ikj.ac.id/files/premium/totosuper/</a>
+<a href="https://jelajah.fftv.ikj.ac.id/files/premium/obc4d/">https://jelajah.fftv.ikj.ac.id/files/premium/obc4d/</a>
+<a href="https://jelajah.fftv.ikj.ac.id/files/premium/pisangtoto/">https://jelajah.fftv.ikj.ac.id/files/premium/pisangtoto/</a>
+<a href="https://jelajah.fftv.ikj.ac.id/files/premium/toto-kl/">https://jelajah.fftv.ikj.ac.id/files/premium/toto-kl/</a>
 </div>
