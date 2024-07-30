@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://stat.fmipa.uny.ac.id/dedi/index.html">https://stat.fmipa.uny.ac.id/dedi/index.html</a>
 <a href="https://s3-pep.pps.uny.ac.id/ahmad/index.html">https://s3-pep.pps.uny.ac.id/ahmad/index.html</a>
 <a href="https://purefine.online/backlink.php">https://purefine.online/backlink.php</a>
 <a href="https://afes3-uat.oup.com/">https://afes3-uat.oup.com/</a>
