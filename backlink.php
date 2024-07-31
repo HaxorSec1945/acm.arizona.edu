@@ -91,4 +91,11 @@
 <a href="https://jelajah.fftv.ikj.ac.id/files/premium/obc4d/">https://jelajah.fftv.ikj.ac.id/files/premium/obc4d/</a>
 <a href="https://jelajah.fftv.ikj.ac.id/files/premium/pisangtoto/">https://jelajah.fftv.ikj.ac.id/files/premium/pisangtoto/</a>
 <a href="https://jelajah.fftv.ikj.ac.id/files/premium/toto-kl/">https://jelajah.fftv.ikj.ac.id/files/premium/toto-kl/</a>
+<a href="https://falcom-technology.com/pisangbet/">https://falcom-technology.com/pisangbet/</a>
+<a href="https://falcom-technology.com/pisto/">https://falcom-technology.com/pisto/</a>
+<a href="https://falcom-technology.com/obc4d/">https://falcom-technology.com/obc4d/</a>
+<a href="https://falcom-technology.com/obctop/">https://falcom-technology.com/obctop/</a>
+<a href="https://falcom-technology.com/obcbet/">https://falcom-technology.com/obcbet/</a>
+<a href="https://falcom-technology.com/totosuper/">https://falcom-technology.com/totosuper/</a>
+<a href="https://falcom-technology.com/toto-kl/">https://falcom-technology.com/toto-kl/</a>
 </div>
