@@ -1,6 +1,7 @@
 <div style="display:none">
 <a href="https://kejari-kabupatenbandung.kejaksaan.go.id/berita/pisang/">https://kejari-kabupatenbandung.kejaksaan.go.id/berita/pisang/</a>
 <a href="https://inspirasidikti.kemdikbud.go.id/content/budaya/">https://inspirasidikti.kemdikbud.go.id/content/budaya/</a>
+<a href="https://inspirasidikti.kemdikbud.go.id/content/kementrian/">https://inspirasidikti.kemdikbud.go.id/content/kementrian/</a>
 <a href="https://kndnkt.vimaru.edu.vn/">https://kndnkt.vimaru.edu.vn/</a>
 <a href="https://fattwoorganizer.com/">https://fattwoorganizer.com/</a>
 <a href="https://glassdec.com/">https://glassdec.com/</a>
