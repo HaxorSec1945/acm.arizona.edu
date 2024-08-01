@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://spmb.kampusmelayu.ac.id/upload/scr/">https://spmb.kampusmelayu.ac.id/upload/scr/</a> 
 <a href="https://survey.uny.ac.id/sgacor/">https://survey.uny.ac.id/sgacor/</a> 
 <a href="https://ternaktropika.ub.ac.id/lib/sdemo/">https://ternaktropika.ub.ac.id/lib/sdemo/</a> 
 <a href="https://international.unsika.ac.id/style/top/index.html">https://international.unsika.ac.id/style/top/index.html</a> 
