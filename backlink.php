@@ -119,4 +119,9 @@
 <a href="https://obcbet.gemilangprimautama.co.id/">https://obcbet.gemilangprimautama.co.id/</a>
 <a href="https://saabaircraft.com/">https://saabaircraft.com/</a>
 <a href="https://obctop.cyberdig.co.id/">https://obctop.cyberdig.co.id/</a>
+<a href="https://louisebianco.com/">https://louisebianco.com/</a>
+<a href="https://markuskraus.com/">https://markuskraus.com/</a>
+<a href="https://hsinchu-sbir.org/">https://hsinchu-sbir.org/</a>
+<a href="https://majormagnetgame.com/">https://majormagnetgame.com/</a>
+<a href="https://pafipangkajene.org/">https://pafipangkajene.org/</a>
 </div>
