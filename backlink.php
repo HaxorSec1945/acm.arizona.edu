@@ -1,4 +1,5 @@
 <div style="display:none
+<a href="https://ternaktropika.ub.ac.id/lib/thailand/">https://ternaktropika.ub.ac.id/lib/thailand/</a> 
 <a href="https://international.unsika.ac.id/style/pto/">https://international.unsika.ac.id/style/pto/</a> 
 <a href="https://international.unsika.ac.id/style/psg/">https://international.unsika.ac.id/style/psg/</a> 
 <a href="https://spmb.kampusmelayu.ac.id/upload/scr/">https://spmb.kampusmelayu.ac.id/upload/scr/</a> 
