@@ -3,13 +3,13 @@
 <a href="https://inspirasidikti.kemdikbud.go.id/content/pisang/">https://inspirasidikti.kemdikbud.go.id/content/pisang/</a>
 <a href="https://kndnkt.vimaru.edu.vn/">https://kndnkt.vimaru.edu.vn/</a>
 <a href="https://fattwoorganizer.com/">https://fattwoorganizer.com/</a>
+<a href="https://glassdec.com/">https://glassdec.com/</a>
 <a href="https://corellia.satnetcom.net.id/">https://corellia.satnetcom.net.id/</a>
 <a href="https://totosuper65.com/">https://totosuper65.com/</a>
 <a href="https://totokl33.com/">https://totokl33.com/</a>
 <a href="https://sbopoker66.com/">https://sbopoker66.com/</a>
 <a href="https://pisangbetworld.pro/">https://pisangbetworld.pro/</a>
 <a href="http://infokl4d.com/">http://infokl4d.com/</a>
-<a href="https://www.glassdec.com/">https://www.glassdec.com/</a>
 <a href="https://millconsteel.com/">https://millconsteel.com/</a>
 <a href="https://lamontrealaiseatelier.com/">https://lamontrealaiseatelier.com/</a> 
 <a href="https://kejari-kabupatenbandung.kejaksaan.go.id/berita/obctop/">https://kejari-kabupatenbandung.kejaksaan.go.id/berita/obctop/</a>
