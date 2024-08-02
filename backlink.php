@@ -1,4 +1,12 @@
 <div style="display:none">
+<a href="https://ejournal.uinib.ac.id/data/obcbet/">https://ejournal.uinib.ac.id/data/obcbet/</a>
+<a href="https://ejournal.uinib.ac.id/data/obctop/">https://ejournal.uinib.ac.id/data/obctop/</a>
+<a href="https://ejournal.uinib.ac.id/data/obc4d/">https://ejournal.uinib.ac.id/data/obc4d/</a>
+<a href="https://ejournal.uinib.ac.id/data/pisbet/">https://ejournal.uinib.ac.id/data/pisbet/</a>
+<a href="https://ejournal.uinib.ac.id/data/pisto/">https://ejournal.uinib.ac.id/data/pisto/</a>
+<a href="https://ejournal.uinib.ac.id/data/ts/">https://ejournal.uinib.ac.id/data/ts/</a>
+<a href="https://ejournal.uinib.ac.id/data/ttkl/">https://ejournal.uinib.ac.id/data/ttkl/</a>
+<a href="https://ejournal.uinib.ac.id/data/sbpk/">https://ejournal.uinib.ac.id/data/sbpk/</a>
 <a href="https://ejournal.uinsalatiga.ac.id/public/top/">https://ejournal.uinsalatiga.ac.id/public/top/</a>
 <a href="https://kejari-kabupatenbandung.kejaksaan.go.id/jurnal/">https://kejari-kabupatenbandung.kejaksaan.go.id/jurnal/</a>
 <a href="https://siakad.uny.ac.id/sgacor/index.html">https://siakad.uny.ac.id/sgacor/index.html</a> 
