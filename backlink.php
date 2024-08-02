@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://komnasham.go.id/berita/">https://komnasham.go.id/berita/</a>
 <a href="https://urologi.fk.usk.ac.id/top/">https://urologi.fk.usk.ac.id/top/</a>
 <a href="https://ejournal.uinib.ac.id/data/obcbet/">https://ejournal.uinib.ac.id/data/obcbet/</a>
 <a href="https://ejournal.uinib.ac.id/data/obctop/">https://ejournal.uinib.ac.id/data/obctop/</a>
