@@ -1,4 +1,5 @@
 <div style="display:none
+<a href="https://siakad.uny.ac.id/sgacor/index.html">https://siakad.uny.ac.id/sgacor/index.html</a> 
 <a href="https://ternaktropika.ub.ac.id/lib/to/">https://ternaktropika.ub.ac.id/lib/to/</a> 
 <a href="https://ternaktropika.ub.ac.id/lib/thailand/">https://ternaktropika.ub.ac.id/lib/thailand/</a> 
 <a href="https://international.unsika.ac.id/style/pto/">https://international.unsika.ac.id/style/pto/</a> 
