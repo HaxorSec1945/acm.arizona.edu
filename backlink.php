@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://lt.fbsb.uny.ac.id/fbsb/index.html">https://lt.fbsb.uny.ac.id/fbsb/index.html</a> 
 <a href="https://isgc.uny.ac.id/skt/index.html">https://isgc.uny.ac.id/skt/index.html</a> 
 <a href="https://ptk.pps.uny.ac.id/sterbang/index.html">https://ptk.pps.uny.ac.id/sterbang/index.html</a> 
 <a href="https://disdikbud.pemkomedan.go.id/obcsbo/">https://disdikbud.pemkomedan.go.id/obcsbo/</a>
