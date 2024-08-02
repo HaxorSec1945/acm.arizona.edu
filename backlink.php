@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://ejournal.uinsalatiga.ac.id/public/top/">https://ejournal.uinsalatiga.ac.id/public/top/</a>
 <a href="https://kejari-kabupatenbandung.kejaksaan.go.id/jurnal/">https://kejari-kabupatenbandung.kejaksaan.go.id/jurnal/</a>
 <a href="https://siakad.uny.ac.id/sgacor/index.html">https://siakad.uny.ac.id/sgacor/index.html</a> 
 <a href="https://ternaktropika.ub.ac.id/lib/to/">https://ternaktropika.ub.ac.id/lib/to/</a> 
