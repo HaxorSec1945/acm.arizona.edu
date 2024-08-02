@@ -1,6 +1,7 @@
 <div style="display:none">
 <a href="https://disdikbud.pemkomedan.go.id/obcsbo/">https://disdikbud.pemkomedan.go.id/obcsbo/</a>
 <a href="https://ejournal.uinsalatiga.ac.id/public/">https://ejournal.uinsalatiga.ac.id/public/</a>
+<a href="http://repository.isi-ska.ac.id/berkah/tsuper/">http://repository.isi-ska.ac.id/berkah/tsuper/</a>
 <a href="http://repository.isi-ska.ac.id/data/">http://repository.isi-ska.ac.id/data/</a>
 <a href="https://ppid.sambas.go.id/desa_mukti_raharja/sthai/">https://ppid.sambas.go.id/desa_mukti_raharja/sthai/</a>
 <a href="https://komnasham.go.id/berita/">https://komnasham.go.id/berita/</a>
