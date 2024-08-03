@@ -15,6 +15,7 @@
 <a href="http://repository.isi-ska.ac.id/berkah/tsuper/">http://repository.isi-ska.ac.id/berkah/tsuper/</a>
 <a href="http://repository.isi-ska.ac.id/berita/sbpk/">http://repository.isi-ska.ac.id/berita/sbpk/</a>
 <a href="http://repository.isi-ska.ac.id/data/">http://repository.isi-ska.ac.id/data/</a>
+<a href="https://spmi.unsil.ac.id/sgcr/">https://spmi.unsil.ac.id/sgcr</a>
 <a href="https://ppid.sambas.go.id/desa_mukti_raharja/sthai/">https://ppid.sambas.go.id/desa_mukti_raharja/sthai/</a>
 <a href="https://totosuper65.com/">https://totosuper65.com/</a>
 <a href="https://totokl33.com/">https://totokl33.com/</a>
