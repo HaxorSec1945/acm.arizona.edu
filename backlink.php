@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://puskom.uny.ac.id/internet/index.html">https://puskom.uny.ac.id/internet/index.html</a>
 <a href="https://konaspai.uny.ac.id/sbt88/index.html">https://konaspai.uny.ac.id/sbt88/index.html</a> 
 <a href="https://publikasipaw.kpu.go.id/zgacor/">https://publikasipaw.kpu.go.id/zgacor/</a> 
 <a href="https://sumberdaya.usk.ac.id/sthai/">https://sumberdaya.usk.ac.id/sthai/</a>
