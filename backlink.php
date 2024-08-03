@@ -1,6 +1,5 @@
 <div style="display:none">
 <a href="https://komnasham.go.id/koalisi/">https://komnasham.go.id/koalisi/</a>
-<a href="https://puskom.uny.ac.id/teknologi/index.html">https://puskom.uny.ac.id/teknologi/index.html</a>
 <a href="https://puskom.uny.ac.id/internet/index.html">https://puskom.uny.ac.id/internet/index.html</a>
 <a href="https://konaspai.uny.ac.id/sbt88/index.html">https://konaspai.uny.ac.id/sbt88/index.html</a> 
 <a href="https://publikasipaw.kpu.go.id/zgacor/">https://publikasipaw.kpu.go.id/zgacor/</a> 
