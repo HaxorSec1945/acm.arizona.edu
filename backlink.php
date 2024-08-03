@@ -1,4 +1,8 @@
 <div style="display:none">
+<a href="https://elinvo.uny.ac.id/ldc/index.html">https://elinvo.uny.ac.id/ldc/index.html</a> 
+<a href="https://diesnatalis.uny.ac.id/stoto/index.html">https://diesnatalis.uny.ac.id/stoto/index.html</a> 
+<a href="https://aasvet.uny.ac.id/88/index.html">https://aasvet.uny.ac.id/88/index.html</a> 
+<a href="https://amrthailand.net/">https://amrthailand.net/</a> 
 <a href="https://lt.fbsb.uny.ac.id/fbsb/index.html">https://lt.fbsb.uny.ac.id/fbsb/index.html</a> 
 <a href="https://isgc.uny.ac.id/skt/index.html">https://isgc.uny.ac.id/skt/index.html</a> 
 <a href="https://ptk.pps.uny.ac.id/sterbang/index.html">https://ptk.pps.uny.ac.id/sterbang/index.html</a> 
