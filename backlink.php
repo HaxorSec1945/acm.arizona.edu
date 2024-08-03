@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://sumberdaya.usk.ac.id/sthai/">https://sumberdaya.usk.ac.id/sthai/</a>
 <a href="https://mp.fipp.uny.ac.id/amerika/index.html">https://mp.fipp.uny.ac.id/amerika/index.html</a> 
 <a href="https://elinvo.uny.ac.id/ldc/index.html">https://elinvo.uny.ac.id/ldc/index.html</a> 
 <a href="https://diesnatalis.uny.ac.id/stoto/index.html">https://diesnatalis.uny.ac.id/stoto/index.html</a> 
