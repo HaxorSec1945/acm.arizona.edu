@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://jni.ejournal.unri.ac.id/sgacor/">https://jni.ejournal.unri.ac.id/sgacor/</a>
 <a href="https://komnasham.go.id/koalisi/">https://komnasham.go.id/koalisi/</a>
 <a href="https://ejournal.uinib.ac.id/tsuper/">https://ejournal.uinib.ac.id/tsuper/</a>
 <a href="https://puskom.uny.ac.id/internet/index.html">https://puskom.uny.ac.id/internet/index.html</a>
