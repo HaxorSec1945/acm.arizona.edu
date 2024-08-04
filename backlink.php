@@ -1,4 +1,11 @@
 <div style="display:none">
+<a href="https://www.chianglong.com/">https://www.chianglong.com/</a>
+<a href="https://chemiconstruction.com/">https://chemiconstruction.com/</a>
+<a href="https://chaletwood.com/">https://chaletwood.com/</a>
+<a href="https://chaiwattanaricegroup.com/">https://chaiwattanaricegroup.com/</a>
+<a href="https://www.burson.co.th/">https://www.burson.co.th/</a>
+<a href="https://bubugaoschool.com/">https://bubugaoschool.com/</a>
+<a href="https://www.btacia.co.th/">https://www.btacia.co.th/</a>
 <a href="https://survey.uny.ac.id/sthai/">https://survey.uny.ac.id/sthai/</a>
 <a href="https://fisip.prosiding.unri.ac.id/sgacor/">https://fisip.prosiding.unri.ac.id/sgacor/</a>
 <a href="https://www.bpphsc.com/">https://www.bpphsc.com/</a>
