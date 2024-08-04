@@ -1,4 +1,14 @@
-<div style="display:none">
+<div style="display:none
+<a href="https://chanpradit.ac.th/">https://chanpradit.ac.th/</a>
+<a href="https://chairmanreview.com/">https://chairmanreview.com/</a>
+<a href="https://bkwschool.ac.th/">https://bkwschool.ac.th/</a>
+<a href="https://bkbtoday.com/">https://bkbtoday.com/</a>
+<a href="https://bitecenterprise.com/">https://bitecenterprise.com/</a>
+<a href="https://www.bearontop.com/">https://www.bearontop.com/</a>
+<a href="https://bansiew.go.th/">https://bansiew.go.th/</a>
+<a href="https://atthapongr.com/">https://atthapongr.com/</a>
+<a href="https://at-49.com/">https://at-49.com/</a>
+<a href="https://assethot.com/">https://assethot.com/</a>
 <a href="https://semnasfisika.uny.ac.id/aderai/index.html">https://semnasfisika.uny.ac.id/aderai/index.html</a>
 <a href="https://totosuper65.com/">https://totosuper65.com/</a>
 <a href="https://totokl33.com/">https://totokl33.com/</a>
