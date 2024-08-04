@@ -23,6 +23,7 @@
 <a href="https://blissbioplus.com/">https://blissbioplus.com/</a>
 <a href="https://bigsmilesolarroof.com/">https://bigsmilesolarroof.com/</a>
 <a href="https://bequge.xyz/">https://bequge.xyz/</a>
+<a href="https://ting-fkip.ut.ac.id/ictl/sthai/">https://ting-fkip.ut.ac.id/ictl/sthai/</a>
 <a href="https://jni.ejournal.unri.ac.id/sgacor/">https://jni.ejournal.unri.ac.id/sgacor/</a>
 <a href="https://komnasham.go.id/koalisi/">https://komnasham.go.id/koalisi/</a>
 <a href="https://ejournal.uinib.ac.id/tsuper/">https://ejournal.uinib.ac.id/tsuper/</a>
