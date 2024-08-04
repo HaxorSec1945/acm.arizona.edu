@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://survey.uny.ac.id/sthai/">https://survey.uny.ac.id/sthai/</a>
 <a href="https://fisip.prosiding.unri.ac.id/sgacor/">https://fisip.prosiding.unri.ac.id/sgacor/</a>
 <a href="https://isimmed.uny.ac.id/hercules/index.html">https://isimmed.uny.ac.id/hercules/index.html</a>
 <a href="https://www.bpphsc.com/">https://www.bpphsc.com/</a>
