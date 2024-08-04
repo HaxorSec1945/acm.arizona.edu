@@ -82,6 +82,7 @@
 <a href="https://cargorrila.com/top/">https://cargorrila.com/top/</a>
 <a href="https://acupuncturehuahin.com/">https://acupuncturehuahin.com/</a>
 <a href="https://woodberrycommon.com/">https://woodberrycommon.com/</a>
+<a href="https://s2psains.fmipa.uny.ac.id/id/akunid/index.html">https://s2psains.fmipa.uny.ac.id/id/akunid/index.html</a>
 <a href="https://acme.in.th/">https://acme.in.th/</a>
 <a href="https://anubanphotharam.org/">https://anubanphotharam.org/</a>
 <a href="https://www.anandayogaparadise.com/">https://www.anandayogaparadise.com/</a>
