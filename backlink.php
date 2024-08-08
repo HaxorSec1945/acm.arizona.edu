@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://corekafe.com/">https://corekafe.com/</a>
 <a href="https://cityfarminterfood.com/">https://cityfarminterfood.com/</a>
 <a href="https://citt.or.th/">https://citt.or.th/</a>
 <a href="https://chonburiarea3.go.th/">https://chonburiarea3.go.th/</a>
