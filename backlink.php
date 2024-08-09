@@ -218,13 +218,11 @@
 <a href="https://majormagnetgame.com/">https://majormagnetgame.com/</a>
 <a href="https://pafipangkajene.org/">https://pafipangkajene.org/</a>
 <a href="https://omahbokep.me/">https://omahbokep.me/</a>
-<a href="https://agroteknologi.uma.ac.id/.well-known/pki-validation/sdemo/">https://agroteknologi.uma.ac.id/.well-known/pki-validation/sdemo/</a>
-<a href="https://agroteknologi.uma.ac.id/wp-content/uploads/88/">https://agroteknologi.uma.ac.id/wp-content/uploads/88/</a>
-<a href="https://agroteknologi.uma.ac.id/testmain/pisangbet/">https://agroteknologi.uma.ac.id/testmain/pisangbet/</a>
-<a href="https://agroteknologi.uma.ac.id/testmain/obcbet/">https://agroteknologi.uma.ac.id/testmain/obcbet/</a>
-<a href="https://agroteknologi.uma.ac.id/testmain/obctop/">https://agroteknologi.uma.ac.id/testmain/obctop/</a>
-<a href="https://agroteknologi.uma.ac.id/testmain/obc4d/">https://agroteknologi.uma.ac.id/testmain/obc4d/</a>
-<a href="https://agroteknologi.uma.ac.id/testmain/pisangtoto/">https://agroteknologi.uma.ac.id/testmain/pisangtoto/</a>
-<a href="https://agroteknologi.uma.ac.id/testmain/totosuper/">https://agroteknologi.uma.ac.id/testmain/totosuper/</a>
-<a href="https://agroteknologi.uma.ac.id/testmain/toto-kl/">https://agroteknologi.uma.ac.id/testmain/toto-kl/</a>
+<a href="https://jpti.journals.id/psg/">https://jpti.journals.id/psg/</a>
+<a href="https://jpti.journals.id/top/">https://jpti.journals.id/top/</a>
+<a href="https://jpti.journals.id/obc/">https://jpti.journals.id/obc/</a>
+<a href="https://jpti.journals.id/ts/">https://jpti.journals.id/ts/</a>
+<a href="https://jpti.journals.id/4d/">https://jpti.journals.id/4d/</a>
+<a href="https://jpti.journals.id/pisto/">https://jpti.journals.id/pisto/</a>
+<a href="https://jpti.journals.id/kl/">https://jpti.journals.id/kl/</a>
 </div>
