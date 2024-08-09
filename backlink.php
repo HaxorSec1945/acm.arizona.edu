@@ -1,4 +1,7 @@
 <div style="display:none">
+<a href="https://provokasi.kemenperin.go.id/">https://provokasi.kemenperin.go.id/</a>
+<a href="https://29building.com/">https://29building.com/</a>
+<a href="https://11-54.com/">https://11-54.com/</a>
 <a href="https://sipbm.sulselprov.go.id/sthai/">https://sipbm.sulselprov.go.id/sthai/</a>
 <a href="https://erfund.go.th/">https://erfund.go.th/</a>
 <a href="https://cptech.ac.th/">https://cptech.ac.th/</a>
