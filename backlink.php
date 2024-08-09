@@ -1,4 +1,7 @@
 <div style="display:none">
+<a href="https://journal1.uad.ac.id/templates/sgacor/">https://journal1.uad.ac.id/templates/sgacor/</a>
+<a href="https://erfund.go.th/">https://erfund.go.th/</a>
+<a href="https://cptech.ac.th/">https://cptech.ac.th/</a>
 <a href="https://corekafe.com/">https://corekafe.com/</a>
 <a href="https://cityfarminterfood.com/">https://cityfarminterfood.com/</a>
 <a href="https://citt.or.th/">https://citt.or.th/</a>
