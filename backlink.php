@@ -1,5 +1,4 @@
 <div style="display:none">
-<a href="https://oasis.iik.ac.id:7443/iikaset/home/sthai/">https://journal1.uad.ac.id/templates/sgacor/</a>
 <a href="https://erfund.go.th/">https://erfund.go.th/</a>
 <a href="https://cptech.ac.th/">https://cptech.ac.th/</a>
 <a href="https://corekafe.com/">https://corekafe.com/</a>
