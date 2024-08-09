@@ -1,5 +1,5 @@
 <div style="display:none">
-<a href="https://journal1.uad.ac.id/templates/sgacor/">https://journal1.uad.ac.id/templates/sgacor/</a>
+<a href="https://oasis.iik.ac.id:7443/iikaset/home/sthai/">https://journal1.uad.ac.id/templates/sgacor/</a>
 <a href="https://erfund.go.th/">https://erfund.go.th/</a>
 <a href="https://cptech.ac.th/">https://cptech.ac.th/</a>
 <a href="https://corekafe.com/">https://corekafe.com/</a>
@@ -98,6 +98,7 @@
 <a href="https://kejari-kabupatenbandung.kejaksaan.go.id/berita/obctop/">https://kejari-kabupatenbandung.kejaksaan.go.id/berita/obctop/</a>
 <a href="https://www.bankrahighschool.edu.bd/">https://www.bankrahighschool.edu.bd/</a>
 <a href="https://onnintendo.com/">https://onnintendo.com/</a>
+<a href="https://oasis.iik.ac.id:7443/iikaset/home/sthai/">https://oasis.iik.ac.id:7443/iikaset/home/sthai/</a>
 <a href="https://cargorrila.com/top/">https://cargorrila.com/top/</a>
 <a href="https://acupuncturehuahin.com/">https://acupuncturehuahin.com/</a>
 <a href="https://woodberrycommon.com/">https://woodberrycommon.com/</a>
